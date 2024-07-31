@@ -1,4 +1,4 @@
-*## seja bem vindos ao meu perfil ☺️🤞*
+## seja bem vindos ao meu perfil ☺️🤞*
 
 -Meu nome é *Ana Claudia* 🤠
 - Estou estudando na alura
